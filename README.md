@@ -1,1 +1,0 @@
-# Peternakkan-barred-Plymouth-Rock
